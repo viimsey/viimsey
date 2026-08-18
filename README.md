@@ -6,4 +6,4 @@ check out my [gang](https://rentry.co/edgylords)😂😂
     </div>
 
 <div align="center"> 
-  <img width="2048" height="1787" alt="1000027565" src="https://github.com/user-attachments/assets/6fbe4638-3c3a-4470-a1a0-4ac365c8bae8" />
+  <img width="548" height="287" alt="1000027565" src="https://github.com/user-attachments/assets/6fbe4638-3c3a-4470-a1a0-4ac365c8bae8" />
