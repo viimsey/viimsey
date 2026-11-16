@@ -1,4 +1,8 @@
 <div align="center">
+  <img src="https://komarev.com/ghpvc/?username=your-viimsey&color=000000&style=plastics&label=mob"
+    </div>
+  
+<div align="center">
   
 check out my [gang](https://rentry.co/edgylords) ( ∩´͈ ᐜ `͈∩)
 
@@ -27,7 +31,3 @@ stuff im in #loser
 [omegatown](https://github.com/omegatown-project) my og. im #omega... pls shush.
 
 
-
-<div align="center">
-  <img src="https://komarev.com/ghpvc/?username=your-viimsey&color=000000&style=plastics&label=mob"
-    </div>
