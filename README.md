@@ -1,6 +1,6 @@
 <div align="center">
   
-check out my [gang](https://rentry.co/edgylords) <3
+check out my [gang](https://rentry.co/edgylords) ( ∩´͈ ᐜ `͈∩)
 
 <div align="center">
 stuff im in #loser
